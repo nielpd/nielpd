@@ -13,7 +13,7 @@ Aqui você encontrará:
 
 ## 🌟 Conta Principal
 
-Para mais informações e acompanhar outros projetos, confira minha conta principal: [@nielassis](https://github.com/SeuUsuarioPrincipal).
+Para mais informações e acompanhar outros projetos, confira minha conta principal: [@nielassis](https://github.com/nielassis).
 
 ## 🤝 Contribuições
 
